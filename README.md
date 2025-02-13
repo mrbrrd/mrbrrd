@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mrbrrd
-- 👀 I’m interested in music
+- 👀 I’m interested in music and games
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate.
 
